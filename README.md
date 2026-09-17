@@ -1,0 +1,1 @@
+# OPISM-practical-1-galietskyi
